@@ -1,0 +1,13 @@
+---
+title: parker house rolls cafe
+date: 2025-02-28T11:55:00
+author: "[[dalton newbend]]"
+tags:
+  - grandma
+  - grandaddy
+  - rolls
+  - church
+---
+We'd head there every other Sunday right after church. It seemed like it was one of Don's favorites as much as it was my grandsons. They both liked something about circling what they wanted on the menu and handing it off to the waitress. They handed you a card and a golf pencil, now that might be another reason Don liked it so much, sat you down and fixed you a sweet tea with lemon or whatever else you wanted to drink. First section on the card was about bread. Did you want their famous parker house rolls, or did you want cloverleaf rolls? I never wanted to make Mama mad, and to tell you the truth, I didn't much care for the crunchier crust on cloverleaf anyway. Usually the waitress would peak at what you had circled in the bread section before you finished so they could get it on the table faster. Next you picked your meat or if you were just go'n have sides. My grandson always gets the cubed steak or the pork ribs. Me and Don both picked whatever chicken they had, usually. You pick your vegetables, two if you got a meat, three if you didn't. And last, you'd pick which dessert you were go'n have. The best week was also the worst, because you'd want all of them: mud pie, pecan pie, or key lime pie.
+Being it a small town, we always managed to run into folks we knew from church or somewhere else around the community. Don could talk to just about anybody, and he would do just that. He would just talk, and I mean talk, and talk, and talk, and talk. You'd think he was just about done and he's start talking again, about some other sorry fella he knew and what ailed them. He would go on so long, and in such detail, folks would think they were being rude to the man by excusing themselves. It never bothered him. He was understanding and knew he had more than enough to say.
+Now back on these rolls, they were the softest parker rolls you'd ever have and had plenty of butter too. I'm sure they put a slice of butter in the middle before they fold them over and put them in the oven. When me an Mama made them, ours are always the slightest bit crispy. The ones at the cafe were just like a sponge. Well, a sponge that if you squished it, it'd stay that way and you'd have a hard ball of dough again. I wonder what it was they used to put in them rolls that made them so soft like that. It might just be that when you make something yourself, you can see all its flaws all the more clearly. When you're making food for eight, ten, or even the fellowship, you notice when your rolls aren't exactly the way you'd want them to be, even if all of them were gone before the cakes were even touched.
