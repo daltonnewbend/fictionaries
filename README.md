@@ -4,4 +4,4 @@ date: 2025-11-01T10:39:00
 author: "[[dalton newbend]]"
 tags:
 ---
-It could be completely true or totally made up. Fictionaries is a collection of prose that lives as fickle memories. 
+Fictionaries is a collection of prose that lives as fickle memories. 
